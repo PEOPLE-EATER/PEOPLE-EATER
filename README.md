@@ -10,4 +10,6 @@
 <p align="center">
 <a href="https://ibb.co/4Rbs6HJ7"><img src="https://i.ibb.co/B2h4X9wt/Untitled3479-20260517211435-edit-3455898384368.png" alt="Untitled3479-20260517211435-edit-3455898384368" border="0"></a>
 <p align="center">
-<a href="https://ibb.co/pjGgBg3k"><img src="https://i.ibb.co/fdBbzbCT/Untitled96-20260517205543.png" alt="Untitled96-20260517205543" border="0"></a>
+<a href="https://ibb.co/ynMd2tcw"><img src="https://i.ibb.co/Fbfmp2LS/1121ebe4d18ad251118153404aadc1d6.jpg" alt="1121ebe4d18ad251118153404aadc1d6" border="0"></a>
+<p align="center">
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/PzfnGNbV/giphy.gif" alt="giphy" border="0"></a>
